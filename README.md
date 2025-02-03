@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new technologies
 - 🌱 I’m currently learning NIIT course in Data Analytics
 - 💞️ I’m looking to collaborate on intersting and fascinating works
-- 📫 How to reach me 
+- 📫 How to reach me E-Mail:preetirushikulya@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I read books , do photographs and  do Illustration .
 

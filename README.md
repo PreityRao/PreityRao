@@ -3,22 +3,24 @@
 I’m interested in learning new technologies
 _____________________________________________________________________________________________________
 NOW
-*****
+
 Currently enhancing my skills by taking NIIT course in Data Analytics.
 ________________________________________________________________________________________________________
 TO DO
-********
+
 Looking to collaborate on intersting and fascinating works
 ______________________________________________________________________________________________________
  To reach me
-***************
+
 E-Mail:preetirushikulya@gmail.com
 ______________________________________________________________________________________________________
 Pastime
-***********
-Reading books,photographs,Sewingclothes and Illustration  .
 
+Reading books,photographs,Sewingclothes and Illustration  .
+______________________________________________________________________________________________________
 TOOLS:
+    
+     
      ![image](https://github.com/user-attachments/assets/19b1c185-c16b-46a4-b5da-8709f4e6d014)
      ![image](https://github.com/user-attachments/assets/7580cdc0-33a8-473c-9c3d-cb65c108faab)
      ![image](https://github.com/user-attachments/assets/ca1cd0c2-d38a-4302-aea4-d09acaa0e7ef)

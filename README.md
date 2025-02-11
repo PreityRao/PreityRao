@@ -19,8 +19,6 @@ Pastime
 Reading books,photographs,Sewingclothes and Illustration  .
 ______________________________________________________________________________________________________
 TOOLS:
-    
-     
      ![image](https://github.com/user-attachments/assets/19b1c185-c16b-46a4-b5da-8709f4e6d014)
      ![image](https://github.com/user-attachments/assets/7580cdc0-33a8-473c-9c3d-cb65c108faab)
      ![image](https://github.com/user-attachments/assets/ca1cd0c2-d38a-4302-aea4-d09acaa0e7ef)
